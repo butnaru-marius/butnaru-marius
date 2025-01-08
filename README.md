@@ -9,7 +9,7 @@ WORK EXPERIENCE:
 
 JYSK Romania.SRL                 2018-Present
 
-Furniture Department Manager:
+Resposable For The Furniture Department:
 
 1.Product and inventory management:
 
